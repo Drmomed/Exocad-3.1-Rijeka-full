@@ -17,8 +17,11 @@ after downloading the files extract (3.1 for keygen.rar) and put mscoree.dll, pl
 
   3. pay 30$ for activation 
   4. payment methods
+     
     - binance id: 819001231
+    
     - usdt (trc20): TS5yWJjJaquoDgaNLTHGmeB6NBuLyvNmU9
+    
     - btc : 18vvxjWMTJK7zjN6vPCJ2zawR37nNjHwAm
   
-  5. Contact me on telegram :: t.me/Dr_momed
+  6. Contact me on telegram :: t.me/Dr_momed
