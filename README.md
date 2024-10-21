@@ -6,7 +6,7 @@ Get Exocad 3.1 keygen
 
 a- link for downloading exocad 3.1 https://mega4upload.com/4wg58wftv7yi
 
-b- link for downloading exocadframework 2024 https://mega4upload.com/t1caqu5lg9j1
+b- link for downloading exocadframework https://mega4upload.com/15zn3h4t9dnd
 
 c- link of files for keygen https://mega4upload.com/k5ascr9u2x29
 
