@@ -12,10 +12,13 @@ c- link of files for keygen https://mega4upload.com/k5ascr9u2x29
 
   2.
 
-after downloading the files extract (3.1 for keygen.rar) and
+after downloading the files extract (3.1 for keygen.rar) and put mscoree.dll, plan.lic in DentalDB/bin and DentalCadApp/bin
 
-a- put mscoree.dll and plan.lic in DentalDB/bin and DentalCadApp/bin
 
-  3.
+  3. pay 30$ for activation 
+  4. payment methods
+    - binance id: 819001231
+    - usdt (trc20): TS5yWJjJaquoDgaNLTHGmeB6NBuLyvNmU9
+    - btc : 18vvxjWMTJK7zjN6vPCJ2zawR37nNjHwAm
   
-Contact me on telegram :: t.me/Dr_momed
+  5. Contact me on telegram :: t.me/Dr_momed
